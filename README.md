@@ -4,7 +4,7 @@
 
 - 🌱 I’m currently learning **Web Development**
 
-- 📫 How to reach me **marcusjhang2608@gmail.com**
+- 📫 Reach me at **marcusjhang2608@gmail.com**
 
 - ⚡ Fun fact **I run in my free time!**
 

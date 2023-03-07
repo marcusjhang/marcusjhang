@@ -9,7 +9,7 @@
 
 - 📄 Have a look at my [Resume 📝](https://drive.google.com/file/d/1MLrNxhyPKC4tEOzyCueWmeBbmqr5I1K7/view?usp=sharing)
 
-- ⚡ **I run in my free time!🏃**
+- 🏃 **I run in my free time!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">

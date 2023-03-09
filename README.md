@@ -5,11 +5,11 @@
 
 - 🌱 I’m currently learning **The basics of programming**.
 
-- 📫 Feel free to **reach me** at **marcusajh0802@gmail.com**!
-
 - 📄 Have a look at my **[Resume 📝](https://drive.google.com/file/d/1Z5RkeIuvOSBCH6vI6rEN1UtihwB26_9K/view?usp=share_link)**
 
 - 🏃 **Fun Fact:** I **run** in my free time!
+
+- 📫 Feel free to **reach me** at **marcusajh0802@gmail.com**!
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">

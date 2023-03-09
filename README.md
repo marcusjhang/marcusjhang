@@ -7,7 +7,7 @@
 
 - 📫 Feel free to **reach me** at **marcusjhang2608@gmail.com**!
 
-- 📄 Have a look at my **[Resume 📝](https://drive.google.com/file/d/1MLrNxhyPKC4tEOzyCueWmeBbmqr5I1K7/view?usp=sharing)**
+- 📄 Have a look at my **[Resume 📝](https://drive.google.com/file/d/1Z5RkeIuvOSBCH6vI6rEN1UtihwB26_9K/view?usp=share_link)**
 
 - 🏃 **Fun Fact:** I **run** in my free time!
 

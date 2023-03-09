@@ -5,9 +5,9 @@
 
 - 🌱 I’m currently learning **The basics of programming**.
 
-- 📫 You can reach me at **marcusjhang2608@gmail.com**!
+- 📫 Feel free to **reach me** at **marcusjhang2608@gmail.com**!
 
-- 📄 Have a look at my [Resume 📝](https://drive.google.com/file/d/1MLrNxhyPKC4tEOzyCueWmeBbmqr5I1K7/view?usp=sharing)
+- 📄 Have a look at my **[Resume 📝](https://drive.google.com/file/d/1MLrNxhyPKC4tEOzyCueWmeBbmqr5I1K7/view?usp=sharing)**
 
 - 🏃 **Fun Fact:** I **run** in my free time!
 

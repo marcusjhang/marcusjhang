@@ -6,7 +6,7 @@
 
 - 🌱 I’m currently learning **The basics of programming**.
 
-- 📄 Have a look at my **[Resume. 📝](https://drive.google.com/file/d/1Z5RkeIuvOSBCH6vI6rEN1UtihwB26_9K/view?usp=share_link)**
+- 📄 Have a look at my **[Resume](https://drive.google.com/file/d/1Z5RkeIuvOSBCH6vI6rEN1UtihwB26_9K/view?usp=share_link)**. 📝
 
 - 🏃 **Fun Fact:** I **run** in my free time!
 
